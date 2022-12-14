@@ -1,0 +1,4 @@
+# holocaust
+n the year 2050, one of the descendants of the poet Luiz Heinrich Mann named Levi Heinrich, a student of quantum physics at the University of Munich, made a time device to go back to the year 1933 to avoid the book burning carried out in Bebel square and which was promoted by supporters of Nazism as a sign of the fight against all thoughts contrary to their ideals.
+
+Levi's goal was to save the writings of his ancestor and other writers. Once Levi managed to travel to the past, he equipped himself with weapons to counter the Nazi advance, standing in the center of the square where they had already generated a large bonfire to start the holocaust of books. Levi was sure not to allow any copies to be burned and to eliminate any Nazi who took a book to burn. Will Levi be able to prevent the literary massacre? Will he Rescue all the copies or will he die along with the books? 
